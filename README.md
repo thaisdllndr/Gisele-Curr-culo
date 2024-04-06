@@ -1,2 +1,2 @@
 # Gisele-Curriculo
-06/04/2024
+https://thaisdllndr.github.io/Gisele-Curr-culo/
