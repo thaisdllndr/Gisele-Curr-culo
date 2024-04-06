@@ -1,2 +1,2 @@
-# Gisele-Curr-culo
+# Gisele-Curriculo
 06/04/2024
